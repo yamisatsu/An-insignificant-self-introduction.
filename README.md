@@ -1,1 +1,1 @@
-# An-insignificant-self-introduction.
+[![Typing SVG](https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&duration=6000&pause=1000&color=000000C3&width=435&lines=%E2%94%80%E2%94%80%E2%94%80%E2%94%80+%E2%9C%A7+%E7%9A%86%E3%81%95%E3%82%93%E3%81%93%E3%82%93%E3%81%AB%E3%81%A1%E3%81%AF%E3%80%82.%F0%96%A5%94+%DD%81+%CB%96+%E2%94%80%E2%94%80%E2%94%80%E2%94%80)](https://git.io/typing-svg)
