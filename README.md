@@ -9,4 +9,4 @@
 
 
  
- ﹋﹋﹋﹋﹋﹋﹋ ‧₊˚ ⊱ ♰ 𓆙 ‧₊° ﹋﹋﹋﹋﹋﹋﹋
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Fira+Code&weight=200&duration=3000&pause=&color=000000BE&width=435&lines=%EF%B9%8B%EF%B9%8B%EF%B9%8B%EF%B9%8B%EF%B9%8B%EF%B9%8B%EF%B9%8B+%E2%80%A7%E2%82%8A%CB%9A+%E2%8A%B1+%E2%99%B0+%F0%93%86%99+%E2%80%A7%E2%82%8A%C2%B0+%EF%B9%8B%EF%B9%8B%EF%B9%8B%EF%B9%8B%EF%B9%8B%EF%B9%8B%EF%B9%8B" alt="Typing SVG" /></a>
